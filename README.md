@@ -1,1 +1,0 @@
-# Yobsz-Kamera
